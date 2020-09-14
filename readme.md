@@ -9,4 +9,4 @@ The Future of Thought is a podcast in which we strive to dismatle social stigmas
 
 ### How can you help?
 
-Visit our patreon at _italics.com_
+Visit our patreon at _patreon.com/thefutureofthought_
